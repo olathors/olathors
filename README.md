@@ -1,4 +1,4 @@
-# Heisann! I'm Ola
+# Heisann du! I'm Ola
 
 Currently doing something...propably..hopefully
 
